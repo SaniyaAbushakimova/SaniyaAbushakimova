@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-My name is Saniya. I am from Kazakhstan 🇰🇿
+My name is Saniya.
 
 - 🇰🇿 I am from Kazakhstan
 - 🎓 I received my bachelor’s degree in Mathemtics from [Nazarbayev University](https://nu.edu.kz/). And currently pursuing master's degree in Statistics from [University of Illinois Urbana-Champaign](https://illinois.edu/)
