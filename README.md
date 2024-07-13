@@ -1,9 +1,5 @@
 ## Hi there 👋🏻
 
-![iicDrNGWxHmDrIni6j](https://github.com/user-attachments/assets/ad484d72-27c4-484f-b5dd-94025df47b6a)
-
-
-
 🙋🏻‍♀️ My name is Saniya \
 \
 🇰🇿 I am from Kazakhstan \
