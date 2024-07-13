@@ -1,6 +1,7 @@
 ## Hi there 👋🏻
 
-![LdBSC4M1t4JfwHar7D](https://github.com/user-attachments/assets/09f96219-16a8-4a83-9989-e5f8cd7d132a)
+![iicDrNGWxHmDrIni6j](https://github.com/user-attachments/assets/ad484d72-27c4-484f-b5dd-94025df47b6a)
+
 
 
 🙋🏻‍♀️ My name is Saniya \
